@@ -1,0 +1,1 @@
+Dieser gegenstand ist ein sehr schönes Objekt welches es nur einmal auf der qetl gibt, weshalb es so besonders ist und du es deshalb auch unbedingt kaufen musst, ansonsten in  wir alle sehr traurig.
